@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @raven
+- 👀 I’m interested in art/anime.
+- 🌱 I’m currently learning coding
+- 😄 Pronouns: she/her
